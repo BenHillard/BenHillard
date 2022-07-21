@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @BenHillard
+- 👀 I’m interested in become a cool programmer ig
+- 🌱 I’m currently learning math and stuff
+- 💞️ I’m looking to collaborate on not really anything rn, but i like looking at stuff
+- 📫 How to reach me email at benofhillard@gmail.com (idk why you'd email me tho)
